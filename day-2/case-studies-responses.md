@@ -32,13 +32,13 @@ To start, I would listen to what they have to say.  I would also write down the 
 
 #### You are reviewing a student's code/project, and you are fairly positive they plagiarized. 
 
-I would reach out to my SL and explain my suspicions, and then request that they assist me in addressing the issue with the student.  If no satisfactory explanation is given, then I wouldn't see much choice than to leave it in the hands of the SL to escalate with Student Success.
+I would reach out to my SL and explain my suspicions, and then request that they assist me in addressing the issue with the student.  I'm pretty sure policy would be to let a member of Student Success evaluate the situation, and handle the situation as they see fit.
 
 ## Case Study 5
 
 #### You've noticed one of your students who is on the quieter side does a phenomenal job - consistently completes assignments and stretch goals, but will not participate in the group or speak-up in channels or during stand-up.
 
-This seems like the type of thing that could be addressed during weekly one-on-ones.  I would recognize that they are doing great work, and remind them that if they speak up and contribute, everyone, even themselves, will benefit.  I would also ask if there was any way I could help, if they're suffering from shyness or anxiety, and maybe share with them some of the applicable situations in my life where I've overcome those types of problems.  I would also reach out to my fellow TL's for any strategies they might have for approaching the student.
+This seems like the type of thing that could be addressed during weekly one-on-ones.  I would recognize that they are doing great work, and remind them that if they speak up and contribute, everyone, even themselves, will benefit.  I would also ask if there was any way I could help, if they're suffering from shyness or anxiety, and maybe share with them some of the applicable situations in my life where I've overcome those types of problems.  I would also reach out to my fellow TL's for any strategies they might have for approaching the student.  Obviously, I wouldn't badger them continuously, and if they're just simply not comfortable speaking up in front of a group, I would try to help them, if my help was desired.  Otherwise, I might just have to let the issue lie.
 
 ## Case Study 6
 
